@@ -1,0 +1,1 @@
+# hr190020fatihzurnaci
